@@ -8,7 +8,7 @@ Estou me desenvolvendo na linguagem JavaScript
 
 Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvidos
 
-Você pode entrar em contato comigo 📫
+VOCE PODE ENTRAR EM CONTATO COMIGO 📫
 
 00001125134975sp@al.educacao.sp.gov.br
 
